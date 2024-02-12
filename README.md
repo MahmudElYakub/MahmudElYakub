@@ -10,4 +10,4 @@
 
 💡 Constantly learning and exploring new technologies to stay ahead in the ever-evolving landscape of software development.
 
-📫 Let's connect and collaborate on exciting projects! Feel free to reach out via email or LinkedIn.
+📫 Let's connect and collaborate on exciting projects! Feel free to reach out via email at mahmudelyakub@gmail.com or LinkedIn.
